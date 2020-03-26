@@ -17,7 +17,7 @@ I'm not responsible for anything you do with this.
 
 
 - **discord:** *sin#1337*
-- **email:** *biz@maldrama.tk*
+- **email:** *-*
 
 
 
